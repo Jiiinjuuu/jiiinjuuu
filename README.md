@@ -6,6 +6,6 @@
 ## carrer
 - YeongNam University, info & comm student grade 2
 
-## Link
+## Links
 - E-mail jinju1010@yu.ac.kr
 - Instargram @wwlswwn
